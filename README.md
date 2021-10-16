@@ -6,7 +6,7 @@
 
 ✨ Check out my design portfolio at uxfolio.com/kareena
 
-☕ Let's grab a (virtual) coffee? Email me at kareenasharma2021@u.northwestern.edu
+☕ Let's be friends? Email me at kareenasharma2021@u.northwestern.edu
 
 <!---
 kareenasharma/kareenasharma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
